@@ -3,4 +3,4 @@ For Owen lol
 
 Teaching the absolute basics lol, feel free to take a look.
 
-Updated regularly.
+Updated every so often.
